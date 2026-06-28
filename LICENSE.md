@@ -1,4 +1,4 @@
-# 
+# Gratuito Affinity Photo efeitos para Mac OS | Profissional Affinity Photo efeitos para PC Windows. Com objetos inteligentes e misturador de canais — otimizado para máximo desempenho em cada plataforma.
 
 
 
